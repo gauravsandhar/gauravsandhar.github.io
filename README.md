@@ -1,7 +1,6 @@
 ## Hi, I am Gaurav.
 
 Follow me [@gauravsandhar](https://twitter.com/gauravsandhar) for my live updates. 
-![Wallpaper](https://s-media-cache-ak0.pinimg.com/originals/6e/7e/0a/6e7e0ab3a76b22e8c53fada3ec6c5ca5.jpg)
 
 ### Markdown
 
